@@ -1,4 +1,4 @@
-### Hi there, my name is Alice Zhang 👋
+### Hi there 👋
 - 😄 Pronouns: she/her/hers
 - 💬 Ask me about my app @zonloopt!
 - ✨ Fun fact: I started coding on Wattpad
